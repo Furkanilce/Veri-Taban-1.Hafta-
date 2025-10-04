@@ -1,1 +1,0 @@
-# Veri-Taban-1.Hafta-
